@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img width="400" src="https://media1.tenor.com/m/t3_IsBYnwc8AAAAC/cat-cat-dazai.gif" alt="Grrr">
+<img width="400" src="https://media1.tenor.com/m/tCc4PH8tICIAAAAd/chuuya-chuya.gif" alt="Grrr">
 </p>
 
 
