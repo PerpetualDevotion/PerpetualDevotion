@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img width="650" src="https://64.media.tumblr.com/e17a0463e2ed7bbdbeeaec4a76b5be15/6b3824d0000c0983-45/s540x810/94587e1d0b13e8e8bb5969d9e63a84a454f8bcd2.pnj" alt="Grrr">
+<img width="750" src="https://64.media.tumblr.com/e17a0463e2ed7bbdbeeaec4a76b5be15/6b3824d0000c0983-45/s540x810/94587e1d0b13e8e8bb5969d9e63a84a454f8bcd2.pnj" alt="Grrr">
 </p>
 
 
