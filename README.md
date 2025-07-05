@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=DarknessMySorrow&color=d0a190&base=4200&style=plastic&label=𝜗ৎ𖹭) <img width="40" src="https://i.pinimg.com/originals/71/58/32/71583297ac6a48ed3156b62526b143dd.gif" alt="Grrr">
 
 <p align="center">
-<img width="450" src="https://i.postimg.cc/3rFhkX8M/24.png" alt="Grrr">
+<img width="450" src="https://files.catbox.moe/3u0gsl.png" alt="Grrr">
 </p>
 
 <p align="center">
