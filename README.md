@@ -16,4 +16,9 @@ I'm lazy as hell to draw Kairi digitally, but I will do it when I feel more moti
  - Traditional artist
 </p>
 
+<p align="center">
+ Update: HELO I THINK I'M DOING THIS WHEN I GET A NEW PHONE (not anytime soon ok.)
+</p>
+
+
 
