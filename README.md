@@ -9,16 +9,7 @@
 </p>
 
 
-<p align="center">
-I'm lazy as hell to draw Kairi digitally, but I will do it when I feel more motivated <img width="20" src="https://64.media.tumblr.com/af97ba5e040bc762a7e8f74106906971/f98eb3be0521f73f-1a/s75x75_c1/c8c23e7e979c407bbbdc3c446bf161360fb5fb2d.gifv" alt="Grrr">
-</p>
-<p align="center">
- - Traditional artist
-</p>
 
-<p align="center">
- Update: HELO I THINK I'M DOING THIS WHEN I GET A NEW PHONE (not anytime soon ok.)
-</p>
 
 
 
